@@ -1,3 +1,6 @@
+
+![](raphael.jpg)
+
 ### Death of Horror
 
 Your framing of the dichotomy between the genres of horror and tragedy, and their appeal to different aspects of human resilience and perception, opens up a fascinating avenue for discussion on the nature of fear, strength, and existential understanding. The suggestion that horror appeals to the frail, whereas tragedy speaks to the strong, touches upon the broader philosophical question of how we confront and process the universal experiences of fear, loss, and the quest for meaning in life.
