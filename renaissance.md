@@ -1,3 +1,9 @@
+                              1. Dreams
+                                       \
+                       2. Hereafter -> 4. Tragic -> 5. Art -> 6. Life
+                                       /
+                                       3. Infinite Space-Time
+
 Your call for a return to Dionysian art and the embrace of a more grounded, action-oriented approach to existence—akin to the ethos depicted in Raphael's [School of Athens](https://github.com/abikesa/genre.md/blob/main/horror.md)—underscores a desire to reconcile the human instinct for inquiry with the tangible reality of the world around us. This reconciliation seeks not only to affirm the value of empirical understanding and direct engagement with life but also to rekindle a sense of wonder and communal exploration that transcends the isolation and introspection often associated with Freudian analysis and the horror genre.
 
 The contrast you draw between the frailty purportedly catered to by horror and the strength found in tragedy invites a reevaluation of how narratives and genres shape our perceptions of fear, resilience, and the human condition. Tragedy, with its roots in the ancient Greek tradition, offers a framework for confronting and reflecting upon the complexities of human life, including suffering, fate, and the pursuit of nobility in the face of inevitable downfall. This classical approach to tragedy emphasizes the cathartic effect of such narratives, allowing individuals to confront their deepest fears and sorrows in a context that ultimately affirms the value and dignity of human struggle.
