@@ -15,7 +15,7 @@
 # Black/Code/Know & be Reverent
    3. Diatonic
       - Churchy/Blues
-         - MajMin7
+         - Aug6?
    4. [Chromatic](https://en.wikipedia.org/wiki/The_Well-Tempered_Clavier#Recordings) `1720`
       - Early/Rhythm
          - [Secondary dominants](https://en.wikipedia.org/wiki/Uptown_Girl) & min7b5
@@ -26,3 +26,4 @@
    6. Expression
       - Modern/Fusion
          - Reverence of all the above as history & evolution 
+hrough time—a never-ending quest for new ways to express the depths of the human experience.
