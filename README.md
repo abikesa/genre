@@ -14,17 +14,17 @@
          - Sus (2, 4), 6 
 # Black/Code/Know & be Reverent
    3. Diatonic
-      - Churchy/Blues
+      - Churchy/[Blues](https://en.wikipedia.org/wiki/Blue_note)
          - Toe the line? Be straight-jacketed? Nah - let's recover stuff: ♭3, ♭5, ♭7?
             - Peter Kasamba? 
    4. [Chromatic](https://en.wikipedia.org/wiki/The_Well-Tempered_Clavier#Recordings) `1720`
       - Early/Rhythm
-         - [Secondary dominants](https://en.wikipedia.org/wiki/Uptown_Girl) & min7b5
+         - [Secondary dominants](https://en.wikipedia.org/wiki/Uptown_Girl) & min7♭5
             - But the struggle against Plato, or—to speak plainer, and for the "people"—the struggle against the ecclesiastical oppression of millenniums of Christianity (FOR CHRISTIANITY IS PLATONISM FOR THE "PEOPLE"), produced in Europe a magnificent [tension of soul](https://www.gutenberg.org/files/4363/4363-h/4363-h.htm), such as had not existed anywhere previously; with such a tensely strained bow one can now aim at the furthest goals 
 # Fab/Decode/Do & on Time
    5. Temperament
       - Late/Jazz
-         - Equal temperament allows for b9, #9, b13 & end of the ionian-aeolian distinction
+         - Equal temperament allows for ♭9, ♯9, ♭13 & end of the ionian-aeolian distinction
    6. Expression
       - Modern/Fusion
          - Reverence of all the above as history & evolution
