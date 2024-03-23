@@ -11,11 +11,12 @@
          - Triads & V7 
    2. Pentatonic
       - Worship/Soul
-         - Sus (2, 4), b5, #5, 6 
+         - Sus (2, 4), 6 
 # Black/Code/Know & be Reverent
    3. Diatonic
       - Churchy/Blues
-         - Aug6?
+         - Toe the line? Be straight-jacketed? Nah - let's recover stuff: ♭3, ♭5, ♭7?
+            - Peter Kasamba? 
    4. [Chromatic](https://en.wikipedia.org/wiki/The_Well-Tempered_Clavier#Recordings) `1720`
       - Early/Rhythm
          - [Secondary dominants](https://en.wikipedia.org/wiki/Uptown_Girl) & min7b5
