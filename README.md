@@ -1,5 +1,11 @@
 >*“Coming up with silly ideas,” said Cooke, “and thinking, ‘this would be fun, how do we work this into the structure of the movie?’ We felt at liberty to do that. Because we weren’t trying to say much. There’s not a lot of earnestness. The points for me are: men can be clueless, or, women are powerful, strong, fun, interesting characters, or you can put queer people in the movie, and it doesn’t necessarily just have to be about them being queer, they can be in a `genre` movie. All of those things I wanted to say in that movie.” - Drive-Away Dolls*
 
+>*Did they like collaborating enough to direct together again? “Yeah!,” they chime in together. “Honey Don’t” is prepping now in Albuquerque, where they called me from the production office, with the shooting calendar behind them on the wall. “It’s a contemporary private eye crime,” said Coen. “A woman is dead. Is she a traffic fatality or not? Mystery!”*
+
+>*“And we took the detective `tropes` and swapped them,” said Cooke. “We’ve got the femme fatale woman as the prime detective.”*
+
+>*She’s played by Margaret Qualley.*
+
  
                                     1. Root
                                            \
