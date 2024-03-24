@@ -1,3 +1,6 @@
+>*“Coming up with silly ideas,” said Cooke, “and thinking, ‘this would be fun, how do we work this into the structure of the movie?’ We felt at liberty to do that. Because we weren’t trying to say much. There’s not a lot of earnestness. The points for me are: men can be clueless, or, women are powerful, strong, fun, interesting characters, or you can put queer people in the movie, and it doesn’t necessarily just have to be about them being queer, they can be in a `genre` movie. All of those things I wanted to say in that movie.” - Drive-Away Dolls*
+
+ 
                                     1. Root
                                            \
                            2. Pentatonic -> 4. Chromatic -> 5. Temperament -> 6. Expression
